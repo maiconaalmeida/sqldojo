@@ -471,7 +471,7 @@ Estas 10 questões demonstram como profissionais de dados trabalham no dia a dia
 Maicon Almeida
 *Data Analyst | Data Engineer*
 
-📧 Email: seu.email@exemplo.com  
+📧 Email: aalmeidamaicon@icloud.com 
 💼 LinkedIn: https://www.linkedin.com/in/aparecidoaalmeida/
 
 ---
